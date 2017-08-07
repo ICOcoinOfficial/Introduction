@@ -11,7 +11,7 @@
  
 - On June 16th, 2017, Yang Lin Ke delivered a speech at the first global Blockchain Summit Forum – “How small and medium sized enterprises embrace chain markets to embrace capital markets”.
  
-​​- On June 27th, 2017, Yangyang Interview was entrusted by ICOCOIN foundation to donate 10000 ICOCOIN to the disaster area Mao Xian Die Xi Town, to send the love and wishes to the disaster area.
+​​-  On June 27th, 2017, Yangyang Interview was entrusted by ICOCOIN foundation to donate 10000 ICOCOIN to the disaster area Mao Xian Die Xi Town, to send the love and wishes to the disaster area.
  
 - On July 2nd, 2017, ICOCOIN announced to start trading on BTCC, Bitcoin China.
  
